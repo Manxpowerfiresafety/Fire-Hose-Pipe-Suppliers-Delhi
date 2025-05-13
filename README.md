@@ -26,4 +26,11 @@ Over the years, Manximpex has served a diverse portfolio of clients. Their fire 
 <h3>Future Outlook</h3>
 With the increasing focus on fire safety compliance and disaster preparedness, the demand for reliable fire fighting equipment is on the rise. Manximpex is actively expanding its product line and enhancing service capabilities to meet this growing demand. The company is also exploring eco-friendly and technologically advanced solutions, keeping pace with industry innovations.<br>
 <h2>Conclusion</h2>
-For anyone looking for dependable <a href="https://manximpex.com/hose-pipe/" title"fire hose pipe suppliers in delhi" alt"fire hose pipe suppliers in delhi">fire hose pipe suppliers in Delhi</a>, Manximpex stands out as a strong contender. Their commitment to quality, customer service, and safety makes them a go-to partner in fire protection solutions. Whether you're upgrading an existing system or outfitting a new building, Manximpex provides the expertise and equipment necessary to keep you protected.
+For anyone looking for dependable <a href="https://manximpex.com/hose-pipe/" title"fire hose pipe suppliers in delhi" alt"fire hose pipe suppliers in delhi">fire hose pipe suppliers in Delhi</a>, Manximpex stands out as a strong contender. Their commitment to quality, customer service, and safety makes them a go-to partner in fire protection solutions. Whether you're upgrading an existing system or outfitting a new building, Manximpex provides the expertise and equipment necessary to keep you protected.<br>
+<h5>For more information, visit our official website or get in touch with their sales team to discuss your fire safety needs.</h5>
+<h2>Get in touch with us:</h2>
+<li>Website: https://manximpex.com/hose-pipe/</li>
+<li>E-mail:  info@manximpex.com</li>
+<li>Call us : +91-7428115550, +91- 7065192900</li>
+<h2>Other Article</h2>
+<h5>Fire Hose Pipe Suppliers In Delhi: https://medium.com/@manxpowerfiresafety/fire-hose-pipe-suppliers-delhi-12acb599c79a </h5>
